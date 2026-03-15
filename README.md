@@ -9,6 +9,12 @@
  
 . ݁₊ ⊹ . <3:･ ⟢ ⋮ plz dont randomly be rude to me cuz ??? plz use tone tags ゛༝.
 
+
+⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
+
+⠀⠀  : ¨·.·¨ :ㅤ
+⠀ ⠀ `· .⠀  please byi visit the links in my info
+
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31kimu35wyrkqc4axnd5pej3vvdi&cover_image=true&theme=default&show_offline=false&background_color=ffb3b3&interchange=true&profanity=false&bar_color_cover=true">
