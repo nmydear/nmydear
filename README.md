@@ -6,7 +6,7 @@
 
 . ݁₊ ⊹ . <3:･ ⟢ ⋮ masc prns pref ゛༝.
  
-. ݁₊ ⊹ . <3:･ ⟢ ⋮ nonshring yume of N i simply block (im sharing w/ friends only) ゛༝.
+. ݁₊ ⊹ . <3:･ ⟢ ⋮ nonshring yume of N , i simply block when doubles (im sharing w/ friends only) ゛༝.
  
 . ݁₊ ⊹ . <3:･ ⟢ ⋮ when i say "dniuf" i mean it, ill simply ignore you ゛༝.
 
