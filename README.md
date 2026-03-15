@@ -8,7 +8,7 @@
  
 . ݁₊ ⊹ . <3:･ ⟢ ⋮ nonshring yume of N , i simply block when doubles (im sharing w/ friends only) ゛༝.
  
-. ݁₊ ⊹ . <3:･ ⟢ ⋮ when i say "dniuf" i mean it, ill simply ignore you ゛༝.
+. ݁₊ ⊹ . <3:･ ⟢ ⋮ when i have "dniuf" i mean it, ill simply ignore you ゛༝.
 
 
 ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
