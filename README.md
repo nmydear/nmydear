@@ -1,4 +1,4 @@
-   <p align="center">  ‧ ︵‿₊୨୧₊‿︵ ‧ ˚ ₊
+   <p align="center"> ‧ ︵‿₊୨୧₊‿︵ ‧ ˚ ₊
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=nmydear&style=plastic&color=ffb3b3&label=+🦴+)  
 <p align="center"> pretend theres a image here ok im grounded i cant make my own rentry graphics rn..
