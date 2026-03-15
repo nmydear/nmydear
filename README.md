@@ -13,9 +13,7 @@
 
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
-<p align="center">   
-  
-  ꒰  plz byi check the links in socials ! ♡ ꒱
+<p align="center">   ꒰  plz byi check the links in socials ! ♡ ꒱
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
