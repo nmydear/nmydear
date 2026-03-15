@@ -12,8 +12,8 @@
 
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
-⠀⠀  : ¨·.·¨ :ㅤ
-⠀ ⠀ `· .⠀  please byi visit the links in my info
+<p align="center">   : ¨·.·¨ :ㅤ
+⠀                   ⠀ `· .⠀  please byi visit the links in my info
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
