@@ -8,7 +8,7 @@
  
 . ݁₊ ⊹ . <3:･ ⟢ ⋮ nonshring yume of N i simply block (im sharing w/ friends only) ゛༝.
  
-. ݁₊ ⊹ . <3:･ ⟢ ⋮ plz dont randomly be rude to me cuz ??? plz use tone tags ゛༝.
+. ݁₊ ⊹ . <3:･ ⟢ ⋮ when i say "dniuf" i mean it, ill simply ignore you ゛༝.
 
 
 ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
