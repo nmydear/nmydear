@@ -1,6 +1,13 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=nmydear&style=plastic&color=ffb3b3&label=+🦴+)  
-<p align="center"> wip!
+<p align="center"> pretend theres a image here ok im grounded i cant make my own rentry graphics rn..
+
+
+. ݁₊ ⊹ . <3:･ ⟢ ⋮ masc prns pref ゛༝.
+ 
+. ݁₊ ⊹ . <3:･ ⟢ ⋮ nonshring yume of N i simply block (im sharing w/ friends only) ゛༝.
+ 
+. ݁₊ ⊹ . <3:･ ⟢ ⋮ plz dont randomly be rude to me cuz ??? plz use tone tags ゛༝.
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
