@@ -12,9 +12,7 @@
 . ݁₊ ⊹ . <3:･ ⟢ ⋮ when i have "dniuf" i mean it, ill simply ignore you ゛༝.
 
 
-
-
-
+<img width="2403" height="1453" alt="Untitled806_20260323194720" src="https://github.com/user-attachments/assets/c8a2cd0d-f3b6-49ff-99de-983ed1434b1e" />
 <p align="center">   ꒰  plz byi check the links in socials ! ♡ ꒱
 
 <p align="center">
