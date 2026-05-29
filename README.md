@@ -1,9 +1,11 @@
+
    <p align="center">   ‧ ︵‿₊୨୧₊‿︵ ‧ ˚ ₊
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ   <p align="center">![](https://komarev.com/ghpvc/?username=nmydear&style=plastic&color=E8C9E3&label=+angelsᯓ𑣲+)  
 <p align="center"> 
 
-<img width="2403" height="1453" alt="Untitled804_20260323192015" src="https://github.com/user-attachments/assets/9907f0ec-9a3f-41a7-a4e8-e24294ebcc0e" />
+<img width="736" height="736" alt="Untitled856_0001-14-04_20260527202326" src="https://github.com/user-attachments/assets/4a4fe7f4-64df-4db9-894e-231ca8a90d1e" />
+
 
 . ݁₊ ⊹ . <3:･ ⟢ ⋮ masc prns pref ゛༝.
  
@@ -13,8 +15,10 @@
 
 . ݁₊ ⊹ . <3:･ ⟢ ⋮ please please i beg do NOT copy my skins or style, slight inspo is fine but heavy inspo = hidden and blocked permanently ゛༝.
 
+<img width="735" height="414" alt="Untitled885_20260529194413" src="https://github.com/user-attachments/assets/f2c6b5b5-93aa-4aa0-8b67-20859b47bd1e" />
 
-<img width="2403" height="1453" alt="Untitled806_20260323194720" src="https://github.com/user-attachments/assets/c8a2cd0d-f3b6-49ff-99de-983ed1434b1e" />
+
+
 <p align="center">   ꒰  plz byi check the links in socials ! ♡ ꒱
 
 <p align="center">
@@ -24,4 +28,4 @@
 </p>
 
  <p align="center"> ︶⊹︶︶୨୧︶︶⊹︶
-<img width="2403" height="1453" alt="Untitled804_20260323192803" src="https://github.com/user-attachments/assets/afd65ce1-f378-4b84-8c5d-9219f05df230" />
+<img width="735" height="414" alt="Untitled885_20260529194704" src="https://github.com/user-attachments/assets/43c12505-c2c6-45b3-9910-370e0d1335cf" />
