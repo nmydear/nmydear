@@ -7,7 +7,7 @@
 <img width="736" height="736" alt="Untitled856_0001-14-04_20260527202326" src="https://github.com/user-attachments/assets/4a4fe7f4-64df-4db9-894e-231ca8a90d1e" />
 
 
-. ݁₊ ⊹ . <3:･ ⟢ ⋮ masc prns pref ゛༝.
+. ݁₊ ⊹ . <3:･ ⟢ ⋮ any prns ゛༝.
  
 . ݁₊ ⊹ . <3:･ ⟢ ⋮ nonshring yume of N , i simply block when doubles (im sharing w/ friends only) ゛༝.
  
