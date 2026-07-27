@@ -29,4 +29,5 @@
 </p>
 
  <p align="center"> ︶⊹︶︶୨୧︶︶⊹︶
-<img width="735" height="414" alt="Untitled885_20260529194704" src="https://github.com/user-attachments/assets/43c12505-c2c6-45b3-9910-370e0d1335cf" />
+<img width="1200" height="675" alt="Untitled851_0000-10-38_20260727133118" src="https://github.com/user-attachments/assets/2c99f75b-885e-4b47-9a27-313f154296b4" />
+
