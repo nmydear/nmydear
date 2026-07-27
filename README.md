@@ -4,7 +4,8 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ   <p align="center">![](https://komarev.com/ghpvc/?username=nmydear&style=plastic&color=E8C9E3&label=+angelsᯓ𑣲+)  
 <p align="center"> 
 
-<img width="736" height="736" alt="Untitled856_0001-14-04_20260527202326" src="https://github.com/user-attachments/assets/4a4fe7f4-64df-4db9-894e-231ca8a90d1e" />
+<img width="2048" height="1183" alt="pinkk_20260720234030" src="https://github.com/user-attachments/assets/e963b912-a256-40d2-990d-708b6d075b41" />
+
 
 
 . ݁₊ ⊹ . <3:･ ⟢ ⋮ she prns ゛༝.
